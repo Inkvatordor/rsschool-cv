@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Inkvatordor.github.io/rsschool-cv/cv
